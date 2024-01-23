@@ -1,4 +1,4 @@
-##Privacy Policy
+## Privacy Policy
 
 Muzychen.co Games developed The Toilet Trouble game as an Ad Supported game. This SERVICE is provided by Muzychen.co Games at no cost and is intended for use as is.
 
